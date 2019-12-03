@@ -1,0 +1,1 @@
+# 8_gridarea_minim_shop
